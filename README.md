@@ -1,1 +1,1 @@
-Please speak to your handsome dashing superstar rockstar faculty for usage
+Please speak to your faculty for usage
